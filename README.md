@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently studying computer science 
 - 💞️ I’m looking to collaborate on Microsoft 
-- 📫 How to reach me @ariankukreja205@gmail.com
+- 📫 How to reach me msg here
 - 😄 Pronouns: Ariiii
 - ⚡ Fun fact: 
 
